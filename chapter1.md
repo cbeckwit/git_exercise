@@ -1,0 +1,1 @@
+Growing up, he doesnt know how to speak human language. He eats raw meat and drinks blood just like every other wolf does.
