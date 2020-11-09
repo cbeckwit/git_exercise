@@ -1,0 +1,1 @@
+The kid came back to find that his wolf friends were gone. Oh no! He searched everywhere in the forest but could not find them.
