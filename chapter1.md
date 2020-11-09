@@ -1,1 +1,1 @@
-Growing up, he doesnt know how to speak human language. He eats raw meat and drinks blood just like every other wolf does.
+Growing up, he doesnt know how to speak human language. But he speaks fluent wolvelish! He eats raw meat and drinks blood just like every other wolf does. He died of stomach infection at age of 5 due to dirty raw meat.
